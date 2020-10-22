@@ -1,0 +1,376 @@
+# 月の物語 - Tsuki No Monogatari
+## Tale of the Moon 
+## Jhas
+
+## Act 1 - New Moon
+=========================
+
+January 13, Friday, Year 1911
+
+Northern Taitō
+
+=========================
+
+I - Meiseki
+
+The white-haired girl, slashed by the satanic being on the face, falls onto the gravel, dazed. Her sword flies through the air and lands on a pool of pebbles.
+
+Clank.
+
+The sudden metallic sound brings me back from my trance. My eyes linger at the slowly regenerating beast then back at the fallen girl.
+
+She's injured.
+
+Her blood... the scent alone makes me bloodthirsty...
+
+Bewildered, I take a few paces towards her.
+
+She's a marechi!
+
+I begin to lose myself, demon instinct controlling me this time.
+
+Marechi...
+
+🌙
+
+No.
+
+I was once a demon slayer.
+
+I will always be one.
+
+I will protect humans.
+
+Giving one last glance back at the white-haired girl, I take my battle stance at the hideous beast before me.
+
+༄ ༄ ༄ ༄ ༄ ༄ ༄
+
+II - Aika
+
+Hah- Hah-
+
+Aika, wake up!
+
+Hah- Hah-
+
+Wake UP!
+
+I force my eyes to open. Before me stood the most peculiar scene. A crimson-haired boy appeared out of nowhere and took my place in the fight.
+
+Who is he?
+
+Help him!
+
+So many thoughts run through my head, but my incompetant body cannot move any more from the beast's slash.
+
+Will he be able to fight it off alone?
+
+🌙
+
+My question has been answered.
+
+He holds up his blade, which I notice is, too, a striking red, and alters his stance, shifting weight onto both legs.
+
+I can feel the pressure coming from him, but there is something off.
+
+His body is giving off a demonic aura.
+
+Are my senses working?
+
+From the side, his striking features are determined, no blood lust, no signs of weakness either.
+
+Despite that, I watch in awe as he delivers his blows. From the boy's vibrant red appearance, I am guessing he is a flame breathing user-
+
+
+#### Breath of Blood: Third form
+
+#### Overarching Blood Moon
+
+In two blade slashes, blinding red light illuminated the entire mountain, all caused by two strikes from an unknown breath.
+
+I had not even seen his movement, but the demon's head was cut clean off.
+
+༄ ༄ ༄ ༄ ༄ ༄ ༄
+
+III - Meiseki
+
+I stand, as if frozen.
+
+My blade falls to the ground, my fingers no longer gripping the hilt.
+
+As the creature melts and crumbles into nothingness, I stare blankly into the slowly disintegrating cells of the very monster I loath, who tore Akiko into pieces, bit by bit, who devoured the people of Vaedisu without a moment's hesitation. I cannot help but feel a sliver of satisfaction.
+
+🌙
+
+I have done it, accomplished a feat no one has ever done, travelled onto unknown land where no man has ever stepped foot on.
+
+Even though I am a demon.
+
+Even though that man's blood still runs through me, flooding through my veins, my hands, every inch of my body.
+
+It's telling me to do something.
+
+Get.
+
+That.
+
+Girl.
+
+I suppress the strong demonic urge to tear her up, falling to the ground.
+
+When would we ever be free?
+
+༄ ༄ ༄ ༄ ༄ ༄ ༄
+
+IV - Aika
+
+Did... Did he really... slice its head off?
+
+I watch him collapse to the ground, and I rush over.
+
+He looks like he has his stamina drained, but the closer I get to him, the weaker he looks. What does that mean?
+
+His complexion is pale like the shining moon high in the sky, yet there is no radiance in his skin.
+
+Please, please don't let him die...
+
+My pleas are drowned by a shrill sound that resembles that of a screeching crow.
+
+At this point, my mind is already swimming through clouds, my eyelids heavy like lead.
+
+I can't stay awake anymo-
+
+No. I have to get home, away from this damned place.
+
+I try to shake the boy awake, but he is not responding, nor is he waking up. Sighing, I decide to carry my savior all the way back to Moon Residence with gritted teeth.
+
+༄ ༄ ༄ ༄ ༄ ༄ ༄
+
+The boy and the girl carrying him with uncanny strength that did not match her small physique set off, accompanied by the shard of new moon high up in the sky.
+
+༄ ༄ ༄ ༄ ༄ ༄ ༄
+
+V - Meiseki
+
+Where am I?
+
+I - the girl - headache - my sword -
+
+The thoughts all come crashing towards me.
+
+I look around.
+
+I am lying on a bed, with a tray of food - a slice of fruit cake, some berries, and a bottle of ramune - on the table beside me. The girl I just met is asleep, resting her head on the bed next to my hand, the wound on her face cleaned and no longer bloody. It is clear that she has stayed with me after I passed out, and had carried me all the way here, wherever I am...
+
+I give her a look of thanks, my hand running through my hair.
+
+🌙
+
+My blade is deposited near the window of the small room I was in, next to her white, shimmering one.
+
+Has she found out that I am a demon?
+
+A slight shiver goes through me.
+
+I have spent so much effort blending into human society. I don't want to be a demon!
+
+It's all because of that man.
+
+He transformed me into this when I was weakest, but I will never fight for him.
+
+Regardless of what he does.
+
+༄ ༄ ༄ ༄ ༄ ༄ ༄
+
+VI - Aika
+
+This person... He's definitely unusual. His quick reflexes, his unique aura, his healing speed, they all signal to me that he is a demon.
+
+But why, why then, would he protect me and slay those of his kind?
+
+And why does he use a breath?
+
+I stare at his lean figure before unknowingly falling asleep.
+
+I dream of a blue sky and clouds, and a world where no demons roam the landscapes, a world with no chaos and no wars.
+
+🌙
+
+My dream turns into a nightmare...
+
+Kibutsuji...The mysterious man... coming for me, smiling sadistically...
+
+Drenched in sweat, I jerk awake to find myself back in the room, right beside the good demon.
+
+"AHH" I scream as I realise I had been clinging to his arm the whole time as I slept.
+
+༄ ༄ ༄ ༄ ༄ ༄ ༄
+
+VII - Meiseki
+
+Not long ago, the girl started clinging onto my hand. She is perspiring a lot, probably having a nightmare of some sort...
+
+She suddenly wakes, tossing her long, silvery hair back, looking alarmed.
+
+Then comes an ear-splitting scream. She lets go of my hand, all red-faced, and hops off out of the room.
+
+I stare at her disappearing, swishing silver hair, dumbfounded.
+
+I can feel a special presence with this girl, the way she walks, the way she slashes, it all reminds me of something... or someone.
+
+🌙
+
+The girl inches in, carrying a tray of fruits after seeing I finished the food. I notice she keeps her gaze down.
+
+"Here's - Here's some fruits,"
+
+"Oh, thanks." I smile at her.
+
+"and... th - thank you for saving me just now!"
+
+She sets down the tray and runs out blushing before I had the chance to properly thank her for carrying me here.
+
+She's got a completely different personality in battle and now, man.
+
+Now she's really shy, and blushes and all that, maybe even a little... cute?
+
+༄ ༄ ༄ ༄ ༄ ༄ ༄
+
+VIII - Aika
+
+Did he smile at me?
+
+AHHHH!
+
+I don't know what is wrong with me...
+
+I should focus on only slaying demons, but he - he has a gravity of some sort... I just can't resist looking at him...
+
+But he's a demon, and I-
+
+I force myself to dispose of this shameful thought. I am a demon slayer, and I will never stop unless Kibutsuji falls.
+
+🌙
+
+I insist that Meiseki lives in Moon Residence for now, as he does not seem to have recovered from the battle.
+
+Oddly enough, Meiseki is still persistent on fasting. On the fourth day of starving himself, he comes up behind me, all red-faced.
+
+"What's wrong?" Concerned, I stare up into his eyes
+
+"I- Uh- It's nothing!"
+
+He has been acting weird for the past few days.
+
+Despite him being determined to fast, five of my handmade sakura mooncakes still go missing from the kitchen evey day. He seems to be really enjoy it, I note.
+
+🌙
+
+_Four months later..._
+
+Meiseki has revealed he was a demon, and his leg had been injured with his own nichirin blade when battling that demon. 
+
+So that's why the wounds are taking so long to heal...
+
+I should be worried I have been living with a demon for the past few months, but I felt more concern lingering in my heart instead.
+
+I guess I genuinely care for him, then..
+
+🌙
+
+It is the Sanja Mitsuri! 
+
+I hadn't even realised time flew so fast, and it was already the third week of May. Since Moon Residence is situated near Asakusa, we could go there together-
+
+Meiseki's leg had still not healed.
+
+"Um, do you mind, uh, come with me to the Sanji Mitsuri..?" I just hate it when I talk to this redhead demon boy. Why, why, must I blush every single time I talk to him?
+
+"Yeah, sure!" The boy, clearly excited, tries to jump off his bed, only to end up half sprawling on the floor. I had to resist laughing out loud as he uses his hands to push his way up, but a few giggles still escape my mouth.
+
+"Don't laugh!" Meiseki, now sitting on the tatami floor, voice so soft as if he was mumbling to himself. (I hear him voice a little, almost inaudible "hmph!", and I literally melted - this boy was so cute!!)
+
+"I guess you'll have to go yourself then..." The boy's face now drooped from his initial excitement, and I cannot bear to see it.
+
+"I'll bring you mochi and sweets and cakes, I promise!"
+
+His sulking face brightens up almost immediately.
+
+"Promise?"
+
+"Yep!"
+
+Before he reluctantly let me leave, his grin was so wide I was sure I could fit one whole banana in it.
+
+
+=========================
+
+🌕
+
+Act 1: New Moon
+
+The End
+
+
+
+=========================
+
+
+Extra Scene 1
+
+ Narrator
+
+The twins, both with wild flowing hair,
+
+dashed into the path filled with sunset.
+
+They parted ways.
+
+
+
+The second greatest samurai in the world.
+
+How ridiculous, yet so easy for him.
+
+
+
+While one of the brothers were blessed by the gods,
+
+the other was fated to suffer,
+
+to do everything he could,
+
+to even reach human's absolute limits,
+
+to even match the skill the brother has.
+
+
+
+Thus this began the outshined brother's search
+
+for control,
+
+for attention,
+
+for power.
+
+
+
+To such extent that he no longer cared.
+
+
+
+In the midst of this struggle for power,
+
+he abandoned his wife,
+
+his children,
+
+leaving them to be slaughtered,
+
+but his child was not dead.
+
+l
+=========================
+
+
